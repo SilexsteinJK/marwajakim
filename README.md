@@ -1,5 +1,4 @@
-- Hi, I’m @marwajakim
-- I’m interested in every ( YOU CAN'T )
+- Hi, I’m marwajakim
 - emailme:0mavajakim@gmail.com
   
 
